@@ -2,6 +2,6 @@
 
 This is a virus!
 
-Create by wipet(His YouTube https://www.youtube.com/watch?v=ghzipk21MX0&list=PLxtq1-sDRhCUA1FmEmjvXBlV3t4OLQNsN)
+Create by wipet(His YouTube https://www.youtube.com/channel/UCWn5-ZertW64IBIjRchLJuA)
 
 See my YouTube video about NoEscape.exe https://youtu.be/F82lhVHJnS4
